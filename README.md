@@ -54,7 +54,7 @@
 
 ## 📹 시연 영상
 
-👉 [YouTube Shorts 영상 바로가기](https://youtube.com/shorts/zb_l6lcniAk?feature=share)
+👉 [YouTube Shorts 영상 바로가기](https://youtube.com/shorts/zb_16lcniAk?si=d2scIoPrI0YyMl-Y)
 
 ---
 
